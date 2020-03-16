@@ -4,10 +4,6 @@ Vous adorez les jeux? Et bien, nous allons tester votre intelligence avec ce jeu
     
 Mon tour à moi:    
     
-![mon tour à moi](https://drive.google.com/uc?id=1udlLGcAB43FRmid8QqMmlUZrDPxoP-QZ)    
-    
-Et puis:    
-    
-![liste des restos](https://drive.google.com/uc?id=1v1Qymq6RlJBHOzHna-_VENDLBvKaICne) 
+![mon tour à moi](https://drive.google.com/uc?id=1tWmWzR-YMKCK5YCC9Xk6DkRUaAMYG4VY)    
 
 
